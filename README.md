@@ -1,5 +1,5 @@
-### Hi there 👋
+## Hi there 👋
 
 :collision:
-## [You can contact me on linkedin:](www.linkedin.com/in/ashwin-damam-b220a2190)
+### [You can connect with me on linkedin by clicking here](www.linkedin.com/in/ashwin-damam-b220a2190)
 
